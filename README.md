@@ -9,5 +9,3 @@ dineshrl/dineshrl is a ✨ special ✨ repository because its `README.md` (this 
 You can click the Preview link to take a look at your changes.
 --->
 abc
-
-https://apc01.safelinks.protection.outlook.com/?url=https%3A%2F%2Furldefense.com%2Fv3%2F__https%3A%2F%2Fshop.singtel.com%2Fcis-phones%3FsessionToken%3D71a7791f-51ee-4e90-a3d6-f36bf2f89156%26utm_source%3Dsingtel%26utm_medium%3Demail%26utm_campaign%3Dcisloginpage__%3B!!ASp95G87aa5DoyK5mB3l!_VZGBfGbpb_UuwOp-xeM2cM4M6iY8HkE60SHNhR9b7FzU7BBWB1fv7ArFayfZaiTu_f109jqUp2GPbZ3pdonP7gQTQ%24&data=05%7C02%7Cdinesh.rajendran%40sc.com%7C3972ac6754d84c29bad908ddfcb0ea5b%7Cb44900f12def4c3b9ec69020d604e19e%7C0%7C0%7C638944558950788437%7CUnknown%7CTWFpbGZsb3d8eyJFbXB0eU1hcGkiOnRydWUsIlYiOiIwLjAuMDAwMCIsIlAiOiJXaW4zMiIsIkFOIjoiTWFpbCIsIldUIjoyfQ%3D%3D%7C0%7C%7C%7C&sdata=8vmOGn8uS8TnpNO6fWAUFi6CykLdFiZzNhwPY9FudlY%3D&reserved=0
